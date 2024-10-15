@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on JAVA DEVELOPER
 - 📫 How to reach me JUST TEXT ME
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I AM LEARNER IN ALL THESE
+- ⚡ Fun fact: I AM EXCITED FOR ALL LEARNING
 
 <!---
 GauriJi/GauriJi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
